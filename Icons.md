@@ -1,0 +1,1 @@
+It is not uncommon in an introductory visual communication course to do some sort of icon drawing project. To encourage engagement with topics of Climate Change, Carbon Cycles, and sustainability the icon project should revolve around trying to visualize different aspects of those topics instead of visualizing mundane objects.
